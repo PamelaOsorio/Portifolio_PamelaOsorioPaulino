@@ -36,4 +36,4 @@ Analista de Qualidade de Software (QA) com **4 anos e 3 meses** de experiência 
 - 🗣️ **Inglês:** Intermediário (B1/B2).
 - 🇨🇳 **Mandarim:** Intermediário.
 
-📫 [LinkedIn](https://linkedin.com/in/pamela-osorio-b31b291b6) | pmosorio84@gmail.com[cite: 2]
+[LinkedIn](https://linkedin.com/in/pamela-osorio-b31b291b6) | pmosorio84@gmail.com.
